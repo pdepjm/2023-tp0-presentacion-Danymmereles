@@ -9,6 +9,7 @@ _Legajo: 167.248-4_
 - Me encanta enseñar y uso muchisimos colores para eso (soy la chica de los plumones :rainbow:)
 - Soy tan buena :boom: rompiendo la compu :boom: que me pagan por eso (Trabajo de QA/Tester)
 - _**Ley:**_ No se habla de cuanto me falta para recibirme, porque me pongo sad :cry:
+- _**Ley 2:**_ No se habla de cuanto mido, toy chiquita, siempre me van a ver con calzados con plataforma 
 - Apoyo con toda violencia los tips de ![Diana](https://github.com/pdepjm/2023-tp0-presentacion-dlopezalvas)
 - Tengo 3 perros y como no me dejaron tener un 4to, esta en lo de mi vecino (Todos son familia) :dog:
 
